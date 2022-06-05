@@ -1,4 +1,6 @@
-https://docs.google.com/document/d/1oblTRenMDVXh2nZYvgfSKCCqgbSSl9dCPg6VNBOUW0g/edit?usp=sharing
+SLIDES: https://drive.google.com/drive/u/0/folders/0B2PDSgGMfXBmflN2My12aTdLU1V5SDh6cW1ud25xNVZZY1RWX24zVHhiTHowNjdMZE0yRjg?tid=0B2PDSgGMfXBmfkRIYzhpV1NJd2FzUW5FX0ppOVFlSTNUcEpnaXp0SFhsaEZmV0NReDZqdm8&resourcekey=0-hKRALjZndmmiZrzRD35hMw
+
+CHEAT SHEET: https://docs.google.com/document/d/1oblTRenMDVXh2nZYvgfSKCCqgbSSl9dCPg6VNBOUW0g/edit?usp=sharing
 
 
 05: RISCHI INFORTUNI  
