@@ -1,3 +1,10 @@
+![alt text](https://github.com/INV-matt/Sicurezza/blob/main/test%20sicurezza.PNG?raw=true)
+
+
+
+
+
+
 <h2><strong>RICORDATEVI IL CASCHETTO GIALLO</strong></h2>
 
 SLIDES: https://drive.google.com/drive/u/0/folders/0B2PDSgGMfXBmflN2My12aTdLU1V5SDh6cW1ud25xNVZZY1RWX24zVHhiTHowNjdMZE0yRjg?tid=0B2PDSgGMfXBmfkRIYzhpV1NJd2FzUW5FX0ppOVFlSTNUcEpnaXp0SFhsaEZmV0NReDZqdm8&resourcekey=0-hKRALjZndmmiZrzRD35hMw
